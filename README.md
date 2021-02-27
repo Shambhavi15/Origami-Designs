@@ -1,1 +1,1 @@
-# OrigamiDesigns
+# Origami Designs
